@@ -5,4 +5,4 @@
 
 ### Maintenance on 07:38 PM (Western Indonesian Time) - 2020-12-07
 
-- Premium Features [07:38 PM  - ? AM / PM]
+- Premium Features [07:38 PM  - 11:22 PM]
